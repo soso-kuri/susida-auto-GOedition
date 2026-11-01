@@ -1,0 +1,1 @@
+# susida-auto-GOedition
